@@ -1,1 +1,1 @@
-# score
+https://nayemmazaharul-ai.github.io/score/
